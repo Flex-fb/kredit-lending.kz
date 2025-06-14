@@ -1,0 +1,1 @@
+# kredit-lending.kz
